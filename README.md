@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @joshmyersdotme!
+- 👀 I have been a sys admin who switched careers to therapy. I currently am looking for ways to combine both knowledge bases and create some cool tools for therapist and tech professionals.
+- 🌱 I’m currently learning ethical AI and machine learning.
+- 💞️ I’m looking to collaborate on anything AI and machine learing related or any type of therapy tool.
+- 📫 How to reach me: ...still deciding on this.
